@@ -1,6 +1,8 @@
 
 # 🚀 SynapseX - FREE PC Tool 2025!
 
+https://shorturl.at/cq89a
+
 ---
 
 ## 🧾 Overview
